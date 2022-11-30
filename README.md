@@ -1,1 +1,0 @@
-# gitagate.github.io
